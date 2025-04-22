@@ -1,5 +1,5 @@
 ### Hi there 👋
-- 🌱 I’m currently studying at UIT - VNUHCM
+- ...
 
 ---
 
